@@ -1,0 +1,7 @@
+# SKETCHER-EXE
+My all new Sketcher is outnow for sketching the marks in graphical format
+KINDLY DOWNLOAD IT AND EXPLORE IT
+THIS IS MY OFFICIAL PAGE OF GIR HUB
+AS I AM NOT A VERIFIED PUBLISHER, WINDOWS FIREWALL SHOWS POP UP WINDOW THAT FILE SEEMS TO BE SUSPICIOUS BUT I ASSURE WITH 100% GUARENTEE THAT FILE IS SAFE
+Follow me on instagram @rishi_radiation
+Copyright 2021 @Rishi Radiations Unbounded
